@@ -1,4 +1,4 @@
-# HubbakaG
+# Hubbaka Ghoyati
 👋
 
 ## 🌐 Socials:
